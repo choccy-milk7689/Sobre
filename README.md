@@ -11,3 +11,5 @@ lista de Perfis de nosso time
 ---
 
 vamos começar mais projetos em breve!!!!!
+
+[grupo do telegram](https://t.me/joinchat/TdG8frMDSzsxZGUx)
